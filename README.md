@@ -5,4 +5,5 @@ Futura app y startup relacionado a la salud mental para potenciar a los profesio
 www.syquis.com
 
 Instagram - Syquis
+
 Tiktok - syquis.oficial
